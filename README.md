@@ -1,5 +1,9 @@
 # IAT360FinalProject.ipynb
 
+Link to new Dataset: https://1sfu-my.sharepoint.com/:f:/g/personal/hkw8_sfu_ca/EgvusumSmyRDsCAHuLLkpLgBXAQMDCUM-5irUEjj_CpiPA?e=TwP8y3
+Link to Combined Dataset: https://1sfu-my.sharepoint.com/:f:/g/personal/hkw8_sfu_ca/EoGhOyejMYlDjOUsNc7lvW4Bu7nbZO8sj3Gvjw2MgsA2SA?e=VN9uWQ
+
+
 Image citation
 
 Children books:
