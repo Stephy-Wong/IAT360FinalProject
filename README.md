@@ -11,15 +11,25 @@ Image citation
 Children books:
 
 https://images.app.goo.gl/A9LaLbjMSKEyvDVo7
+
 https://www.dochipo.com/how-to-design-childrens-book-cover/
+
 https://londonmumsmagazine.com/shopping-guides/books-tested-recommended/ten-iconic-childrens-book-covers/
+
 https://kindlepreneur.com/childrens-book-covers/
+
 https://www.adazing.com/childrens-book-covers/
+
 https://100scopenotes.com/2022/10/10/i-asked-a-i-to-recreate-classic-childrens-book-covers-and-uh-it-didnt-go-well/
+
 https://www.creatopy.com/blog/childrens-book-covers/
+
 https://wolvesinlondon.com/2013/03/06/vintage-childrens-book-covers/
+
 https://www.creatopy.com/blog/childrens-book-covers/
+
 https://www.canva.com/book-covers/templates/childrens/
+
 https://www.weareteachers.com/new-books-october/
 
 Craft books:
